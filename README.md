@@ -11,6 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ... Devops
 - 💬 Ask me about ... any issues
 - 📫 How to reach me: ... Instagram
-- 😄 Pronouns: ... sravas
+- 😄 Pronouns: ... sravs
 - ⚡ Fun fact: ...
 
